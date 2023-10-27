@@ -1,7 +1,7 @@
 # NM2023TMID01207
-Project Title: How to Create a Brand Promo Video Using Canva
 # Naan Mudhalvan
 # _Digital Marketing_
+Project Title: How to Create a Brand Promo Video Using Canva
 
 Veda Prakash Mohanarangan - 2284E58D35911ABBC244FDB28CB196A8
 Dinesh M. - 24C3A4B23C93CD085AE44B913B3D6AB3

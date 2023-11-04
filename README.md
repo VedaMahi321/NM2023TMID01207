@@ -13,3 +13,6 @@
 - https://drive.google.com/file/d/1CqW7tkUhpDEDyhHt53ooxMPM5OUiwgwR/view?usp=sharing
 
 ### Assigment links of individuals given in the assigment.md
+- ___https://github.com/VedaMahi321/NM2023TMID01207/blob/main/Assigment.md___
+
+### 
